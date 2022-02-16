@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @robsonlira2077
+- 👀 I sou robson , estou estudando alguns cursinhos
+- 🌱 I’m currently learning artes digitais
+- 💞️ I’m looking to collaborate  no crescimento  de meus conhecimentos com cursos
+- 📫 sou de uma cidade pequena, estou trabalhando para uma pequena empresa da cidade aonde quero desenvolver meus conhecimentos colaborando com a empresa.
